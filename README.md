@@ -1,0 +1,1 @@
+# A02_SE2224_NurgazizSerik
